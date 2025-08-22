@@ -1,3 +1,0 @@
-#Tareas
-
-Juan David Sanclemente
